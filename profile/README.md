@@ -1,4 +1,4 @@
-![Saritasa - Top Custom Development Company](https://www.saritasa.com/wp-content/themes/saritasa/includes/assets/images/videobox-bg-full-mirrored.webp)
+![Saritasa - Top Custom Development Company](https://www.saritasa.com/wp-content/uploads/2023/12/ceo_videomessage_alt.webp)
 
 # Empower Your Business
 
